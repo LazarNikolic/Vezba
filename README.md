@@ -1,0 +1,2 @@
+# Vezba
+vezbaj panju !
